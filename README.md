@@ -5,7 +5,7 @@
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
 hello (^ .. ^) my name is enjel! i'm 22 years old and i like the pony game very much.
-you can usually find me sitting at either the homestuck or the idv conerners.
+you can usually find me sitting at either the homestuck or the idv corners.
 don't be afraid to say hi!! i'm very friendly but keep in mind that i may not see your message as i am often afk or off-tab. <img src="https://64.media.tumblr.com/ca01b4bde0808bf3584ef4cbb3dd0f76/b18aff3ce9323114-7c/s75x75_c1/6694e17317fece7cf72ad039c90895c4b5f73821.gifv">
 
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
@@ -21,7 +21,7 @@ i'm happily taken by my partner sonny <3
 
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
-<b><i>please </i>dni if:</b>
+<b><i>please </i>dni if you:</b>
 
 are under the age of 18,
 
