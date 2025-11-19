@@ -16,8 +16,9 @@ don't be afraid to say hi!! i'm very friendly but keep in mind that i may not se
 i love homestuck, idv, genshin impact, fear and hunger, cringe 2000s media, gyaru fashion, shanghai jazz, visual kei, the thistampdoesnotexist blog,
 the case study of vanitas, pandora hearts, the neopolitan colorscheme, furry art, umamusume, the silent hill franchise,
 puppies and kitties and sunshine and being niceys :)
-
+i'm a witch of space!
 i'm happily taken by my partner sonny <3
+i believe in kardavjade
 
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
@@ -68,6 +69,9 @@ are profic, proship, pro endo, pro tulpa, participate in sh/edtwt
 <img src="https://64.media.tumblr.com/13e7d38b5a20c5c8030dd5a0744e550c/ec8923cd04bc0a16-a0/s100x200/6a7576a0ec0bd4a15bb63c0274b4b8c2f7735e52.pnj">
 <img src="https://64.media.tumblr.com/62f17de21473f6d254dea04796610d5d/03611617f0fe27cc-f4/s100x200/3c9b89062999583477cbfe3c9883b1a4a80c22f8.pnj">
 <img src="https://64.media.tumblr.com/9703ef30c0fac53899df2465d6e2bca9/98f395d4b8347622-a6/s100x200/2908f907d96475668e9d867a2ee1a6b7c27db9b9.pnj">
+<img src="https://64.media.tumblr.com/c4c7c948037c5657c4e509bac5e407ed/db9b462180328fa4-f4/s100x200/86f90b4b1a7d002c95240ab4584765216053b76e.gifv>"
+<img src="https://64.media.tumblr.com/da3c9c1f8960fca5f598dc47cbec8fd9/37777c07c7c048ea-a8/s100x200/ff9f93a6ab00c5938ff1b4801b9433f53f0c4e67.gifv">
+<img src="https://64.media.tumblr.com/31b33d2db2cf26c7ad43f2e3e8fbc41d/2fe1a63ff43cd504-5a/s100x200/9378279ee047428212218d91fa3de4dc3dc08ce3.gifv">
 
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
@@ -85,6 +89,8 @@ are profic, proship, pro endo, pro tulpa, participate in sh/edtwt
 <img src="https://64.media.tumblr.com/f28b826429f8864130664ce3b3005871/e82a9758aa9a0ad9-82/s250x400/25ef194d677e5cb4f691f5440c0afc26835f5eb7.jpg">
 <img src="https://64.media.tumblr.com/98f6790a2a4953eab0fc3db2fea710c2/4638d152ba67b5d9-47/s250x400/d10d18fcf04d4f19b1cda385de7003f32c2426dd.gifv">
 <img src="https://64.media.tumblr.com/9afe5f2147d1566360644588059f2cc0/baf41b79d8f82464-b9/s250x400/3b084beae7d036d054e9d580cea44da81b5a83dd.gifv">
+<img src="https://64.media.tumblr.com/5ae8753c8f5df33a3677ef9a54b0ff28/a764e46e2a175af4-d1/s250x400/981a75a6a7fb12829934867ae879b52510b4fd67.gifv">
+<img src=https://64.media.tumblr.com/134739e502fbdd31412c3faafef318dd/cc8c84b14e587245-a5/s250x400/7aa77d27870c914b6826d8a501888570d4eca3fa.gifv">
   
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
