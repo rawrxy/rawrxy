@@ -77,19 +77,27 @@ are profic, proship, pro endo, pro tulpa, participate in sh/edtwt
 <img src="https://64.media.tumblr.com/46c50fbe5ebc401655ce7f7bddffbbf2/b765cb50a3055984-32/s100x200/cb9138ad0a756e254ef5f431cd248b3fbe32909a.pnj">
 <img src="https://64.media.tumblr.com/2f4f73164fe03241516a0ee7589edba4/b765cb50a3055984-74/s100x200/79fa87ffa368643ee79dd737eaaf74c0756f76ed.gifv">
 <img src="https://64.media.tumblr.com/5181caa91de7a565d349cb14710bce5b/61c2130c0ea8c327-53/s100x200/7f07aae6ebf0a31a4395701b4a07108f7f9f5b1e.gifv">
+<img src="https://64.media.tumblr.com/b6947cde31aee01d86561fb980e67539/e6c3d6e24bb9e481-ef/s100x200/2b52096f11c7c9bfb91169ee7ecd864860e82d73.gifv">
+<img src="https://64.media.tumblr.com/0636d72bad693b641016c80a5140a986/c6c0d41d8a286cfd-77/s250x400/9f6f553c06c1f5ae987db103e0ff8b20a29b5a29.pnj">
+<img src="https://64.media.tumblr.com/dd79d3299092c3f9a175161bb18f0860/4563b7e1e7a264b5-87/s100x200/6ed292fc456181a6e61e3680ab9f7a2f94e9ff6d.pnj">
+<img src="https://64.media.tumblr.com/c3aa1c2738f16e68831488e03abbc7be/d83a7de606c7f5f9-54/s100x200/3cdf023bfaf2ff9e5577ffe426519e4194b12325.pnj">
+<img src="https://64.media.tumblr.com/4a8abebcc0204c1098865a5ca30a3a3a/4650c263c2440927-9c/s100x200/6eaf51d94f086fa413e7f286824a95408570007e.pnj">
+<img src="https://64.media.tumblr.com/5c997b95f4e35391ad5a0e83315cd99b/4650c263c2440927-90/s100x200/e5c7c92b70f5a18711a9b9ba0612f773b22633fd.gifv">
+<img src="https://64.media.tumblr.com/0c29607ed0d5788f542aae48c5a1b268/25c8c687a6e9db77-56/s100x200/e7b4ea9627facbf8501c95719263c8120a136196.pnj">
+<img src="https://64.media.tumblr.com/bafea2028233327bbc83e9b95403d7cc/bb38db1d448aa575-43/s100x200/c94e56cd6b29ee029f72f23200d0db99694547d0.pnj">
 
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
 <p>blinkie collection!</p>
 <img src="https://64.media.tumblr.com/bfe0f2d21bb4ba5c529e9df52baa07ae/8f3b966c768a7a38-63/s250x400/43aa0dae0cf3e9ac587af873c5e7de89dc75208d.gifv">
-<img src="https://64.media.tumblr.com/33df89a383a78edbade2c6d872e4ecc1/b18aff3ce9323114-08/s250x400/996beaeaacaaee707c01c7d9e2152074fc1e701c.gifv">
+<img src="https://64.media.tumblr.com/e6055613ae864c0907cb12e072d396f7/1a0bd8a997af9343-9e/s250x400/482efff963c081d98e7a6164f52895a6eef1fb6b.gifv">
 <img src="https://64.media.tumblr.com/59343e8ab721765f1221aa526818494f/6eac0cbc1027da31-eb/s250x400/3ea3a3073ce2925951b0bff3096fb4233e17dc02.gifv">
 <img src="https://64.media.tumblr.com/a5b6d35bc8b1c89e64033355ccba4b79/321aa268678c99b9-4c/s250x400/f089d536ab70b8c8afd278f3fe9209b4310c0339.gifv">
 <img src="https://64.media.tumblr.com/e6e5560fc6219fa87f39dd73e902a886/3c74d06b377fdc9b-55/s250x400/1e868279cf29038170c5643101fd48c1e3047a7e.gifv">
 <im src="https://64.media.tumblr.com/9d8874a7283822cb0856aed5ec9f2f3c/b32c64cc93000922-4b/s250x400/5bcc898eea857e192964ea030a7529fe24c45adc.gifv">
 <img src="https://64.media.tumblr.com/8e4a59a3bc3aa75c20897869e194d772/b32c64cc93000922-84/s250x400/6b3450ea5ba7f7cfcac778a1195cfef32ff3dbd1.gifv">
-<img src="https://64.media.tumblr.com/a3f7b7b3b7de032c4932c613915ebae8/f1413ef45abf2485-55/s250x400/145377b70ed34ae0dbf73baa08e121bc637bfaa6.gifv">
-<img src="https://64.media.tumblr.com/f37ee588a082c900227fb624b361b276/b4f3a731a7a10fbe-4b/s250x400/5e6f82681723349289d8d4c036656b48baa4afe9.gifv">
+<img src="https://64.media.tumblr.com/3bfcd45b6d38d0d18b58008d6fa3c2d8/66f8bee48421ca35-f1/s250x400/3c535ac1061eca7bdf74dc1b29ffd13514a861c4.gifv">
+<img src="https://64.media.tumblr.com/65d10e613be94cb5246ba61cda2e0f6e/66f8bee48421ca35-f7/s250x400/7ffc9cf2969f8b9e57f63ff8b807cb23157c3fac.webp">
 <img src="https://64.media.tumblr.com/c5b29f56e258970ba6b3c12d52f58eef/e82a9758aa9a0ad9-07/s250x400/e4598df278d4746f51c8f250efc782169e20b6ce.pnj">
 <img src="https://64.media.tumblr.com/f28b826429f8864130664ce3b3005871/e82a9758aa9a0ad9-82/s250x400/25ef194d677e5cb4f691f5440c0afc26835f5eb7.jpg">
 <img src="https://64.media.tumblr.com/98f6790a2a4953eab0fc3db2fea710c2/4638d152ba67b5d9-47/s250x400/d10d18fcf04d4f19b1cda385de7003f32c2426dd.gifv">
