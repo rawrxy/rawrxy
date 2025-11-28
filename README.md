@@ -88,8 +88,8 @@ are profic, proship, pro endo, pro tulpa, participate in sh/edtwt
 <img src="https://64.media.tumblr.com/0c29607ed0d5788f542aae48c5a1b268/25c8c687a6e9db77-56/s100x200/e7b4ea9627facbf8501c95719263c8120a136196.pnj">
 <img src="https://64.media.tumblr.com/bafea2028233327bbc83e9b95403d7cc/bb38db1d448aa575-43/s100x200/c94e56cd6b29ee029f72f23200d0db99694547d0.pnj">
 <img src="https://64.media.tumblr.com/6688b846b4b9f679ddcb8ec77c1ca10f/56c17cf0a0bbdcaa-3a/s100x200/18994f10e65157de345d3f8f0b8f93dfb33dc9a5.gifv">
-<img src="https://64.media.tumblr.com/642bdc2c808d95f4656027075a71cab3/ba7c2aaf7bab0a72-ea/s100x200/cf584f878ab4303ec929f67c58864719c8e3e7ba.gifv">
-<img src="https://64.media.tumblr.com/11271cf9d5135a2bc21193d5a18c7396/a45f3579742de006-56/s100x200/77419f7d35c3597696e8c4eabd25001c663d4bca.gifv">
+<img src="https://64.media.tumblr.com/01229bb49ff0d5c9616d1c472b47ae18/99b03e9f0218f144-da/s250x400/3b5030241912ce7872e84a5f37f261c58f3a2ddb.gifv">
+<img src="https://64.media.tumblr.com/2bb3dbb5b41a0bffa285ecb19d0d4cf8/39f4f0b3526e9818-49/s100x200/a47539b7dd8c00cf4bd456e25cbc1eeef2f72f89.pnj">
 <img src="https://64.media.tumblr.com/5bc16541becb24e0ef96832d8738007b/124cf52fdd53428e-db/s100x200/b9f33a301169b84f59aa94a41d88aae7d9568dd0.gifv">
 
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
