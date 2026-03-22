@@ -5,7 +5,7 @@
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
 hello (^ .. ^) my name is enjel! i'm 23 years old and i like the pony game very much.
-you can usually find me sitting at either the homestuck or the idv corners.
+you can usually find me sitting at either the homestuck or the idv corners. i have a dissociative disorder, please be kind <3 but
 don't be afraid to say hi!! i'm very friendly but keep in mind that i may not see your message as i am often afk or off-tab. <img src="https://64.media.tumblr.com/ca01b4bde0808bf3584ef4cbb3dd0f76/b18aff3ce9323114-7c/s75x75_c1/6694e17317fece7cf72ad039c90895c4b5f73821.gifv">
 
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
@@ -15,12 +15,9 @@ don't be afraid to say hi!! i'm very friendly but keep in mind that i may not se
 
 i'm a gyaru! my passion for fashion knows no bounds, please tell me about your favorite subcul and the niche music and art you like!!!!
 
-i love homestuck, idv, genshin impact, fear and hunger, cringe 2000s media, gyaru fashion, shanghai jazz, visual kei, the thistampdoesnotexist blog,
-the case study of vanitas, pandora hearts, the neopolitan colorscheme, furry art, umamusume, the silent hill franchise,
+i love homestuck, idv, genshin impact, honkai star rail, fear and hunger, cringe 2000s media, gyaru fashion, shanghai jazz, visual kei, the thisdastampdoesnotexist blog, the case study of vanitas, pandora hearts, the neopolitan colorscheme, furry art, umamusume, crk, rpgmaker games, the silent hill franchise,
 puppies and kitties and sunshine and being niceys :)
 i'm a witch of space!
-i'm happily taken by my partner sonny <3
-i believe in kardavjade <3
 
 <img src="https://64.media.tumblr.com/bce73d6215cc6fa47154038e0eea2fa3/23a01eeb66e5b1df-78/s2048x3072/eaba39431d1e6957cb19dd4e9f58f257e6aa40c2.pnj">
 
